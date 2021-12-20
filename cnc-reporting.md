@@ -2,8 +2,10 @@
 
 If you feel uncomfortable, are being harassed, notice that someone else is being harassed, or have any other concerns, please contact My.L.E.S (@ProjectErostribe) immediately via
 the information below.  I will be happy to help participants experiencing harassment to feel safe.
-
-I recommend you use the following template to report any incident:
+  
+  🎪  [Online Community](https://circusandcode.disciplemedia.com)   
+  📫  [E-mail](janet@projecterostribe.com) <br>
+  I recommend you use the following template to report any incident:
 
 ## Reporter
 
